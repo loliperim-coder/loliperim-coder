@@ -1,4 +1,4 @@
-# Hi, I'm Lolli Perim 
+# Hi, I'm Loli Perim 
 
 ### Operations | Data Analytics | Customer Experience
 
